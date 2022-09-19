@@ -4,7 +4,7 @@
  + SOU DO ROCK :metal: :skull:
  + E PRINCIPALMENTE AMO O MA :smiling_imp: :blossom:
    
-:raised_hands: ## SOBREVIVO NO DS :computer:
+ ## :raised_hands: SOBREVIVO NO DS :computer:
 ### ESTOU APRENDENDO: 
 | MATÉRIAS|:star: MEU NIVEL :star:|
 | ------ | ----------- |
