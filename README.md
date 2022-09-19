@@ -4,7 +4,7 @@
  + ADORO UM MATUÊ :herb:
  + E PRINCIPALMENTE AMO O MA :smiling_imp: :blossom:
    
-## FAÇO DS :pray:
+## SOBREVIVO NO DS :pray:
 ### ESTOU APRENDENDO: 
 | MATERIAS|:star: MEU NIVEL :star:|
 | ------ | ----------- |
