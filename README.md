@@ -14,7 +14,8 @@
 | PW | KKKKKKKK SOCORRO |
 
 ## O MELHOR ANIME DO MUNDO :fire: :
-https://apptopia.com/google-play/app/com.aymen.chainsaw/about
+![unnamed](https://user-images.githubusercontent.com/110108497/191007059-c7f3775c-b543-4f9a-bf20-5dc148aab10b.jpg)
+
 
 
 
