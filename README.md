@@ -16,7 +16,8 @@
 ### O MELHOR ANIME DO MUNDO É:fire: :
 ![unnamed2](https://user-images.githubusercontent.com/110108497/191008169-c1c8da42-3fee-4df0-8075-58cf42e700ad.jpg)
 #### E QUEM ME DERA VOLTAR COMO ERA ANTES.. :notes:
-https://www.tumgir.com/tag/maquinadotempo
+![sdfd](https://user-images.githubusercontent.com/110108497/191008523-93e64ec4-13bc-4382-a8f1-7ffbf3af62b4.gif)
+
 
 
 
