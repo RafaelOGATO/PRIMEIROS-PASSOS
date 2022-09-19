@@ -12,12 +12,10 @@
 | BD | MAIS OU MENOS |
 | TPA| SOU MUITO BOMM |
 | PW | KKKKKKKK SOCORRO |
-## OLHA EU PROGRAMANDO SLK:
+### OLHA O PAI PROGRAMANDO SLK :triumph::
 ![giphy](https://user-images.githubusercontent.com/110108497/191008818-ae43ffe0-e6d2-4a7f-a296-933df39448db.gif)
 
 
-### E O MELHOR ANIME DO MUNDO É:fire: :
-![unnamed2](https://user-images.githubusercontent.com/110108497/191008169-c1c8da42-3fee-4df0-8075-58cf42e700ad.jpg)
 
 
 
