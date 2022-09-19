@@ -14,9 +14,9 @@
 | PW | KKKKKKKK SOCORRO |
 
 ### O MELHOR ANIME DO MUNDO É:fire: :
-![unnamed](https://user-images.githubusercontent.com/110108497/191007059-c7f3775c-b543-4f9a-bf20-5dc148aab10b.jpg)
-
+![unnamed2](https://user-images.githubusercontent.com/110108497/191008169-c1c8da42-3fee-4df0-8075-58cf42e700ad.jpg)
 #### E QUEM ME DERA VOLTAR COMO ERA ANTES.. :notes:
+https://www.tumgir.com/tag/maquinadotempo
 
 
 
