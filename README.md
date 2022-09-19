@@ -13,6 +13,10 @@
 | TPA| SOU MUITO BOMM |
 | PW | KKKKKKKK SOCORRO |
 
+## O MELHOR ANIME DO MUNDO :fire: :
+https://apptopia.com/google-play/app/com.aymen.chainsaw/about
+
+
 
 
 
