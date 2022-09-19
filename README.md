@@ -4,14 +4,16 @@
  + SOU DO ROCK :metal: :skull:
  + E PRINCIPALMENTE AMO O MA :smiling_imp: :blossom:
    
-## SOBREVIVO NO DS :pray:
+## SOBREVIVO NO DS :raised_hands: :computer:
 ### ESTOU APRENDENDO: 
-| MATERIAS|:star: MEU NIVEL :star:|
+| MATÉRIAS|:star: MEU NIVEL :star:|
 | ------ | ----------- |
 | DD | AMASSO! |
 | BD | MAIS OU MENOS |
 | TPA| SOU MUITO BOMM |
 | PW | KKKKKKKK SOCORRO |
+
+
 
 
 
