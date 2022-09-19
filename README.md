@@ -1,5 +1,5 @@
 ## Rafael Oliveira Vulgo O GATO :flushed: :point_right::point_left:
-### ADORO DESENHAR :heartpulse: :pencil2:
+### ADORO DESENHAR :heartpulse: :art:
 ## FAÇO DS :pray:
 
 ### ESTOU APRENDENDO: 
