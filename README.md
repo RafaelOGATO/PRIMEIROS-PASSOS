@@ -13,8 +13,11 @@
 | TPA| SOU MUITO BOMM |
 | PW | KKKKKKKK SOCORRO |
 
-## O MELHOR ANIME DO MUNDO :fire: :
+### O MELHOR ANIME DO MUNDO É:fire: :
 ![unnamed](https://user-images.githubusercontent.com/110108497/191007059-c7f3775c-b543-4f9a-bf20-5dc148aab10b.jpg)
+
+#### E QUEM ME DERA VOLTAR COMO ERA ANTES.. :notes:
+
 
 
 
