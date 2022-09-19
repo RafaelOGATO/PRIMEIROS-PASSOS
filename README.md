@@ -1,4 +1,4 @@
-## Rafael Oliveira Vulgo O GATO :flushed: :point_right::point_left:
+## Rafael Oliveira Vulgo: O GATO :flushed: :point_right::point_left:
  + GOSTO DE DESENHAR :art: :heart:
  + CURTO LER MANGÁ :closed_book:
  + ADORO UM MATUÊ :herb:
